@@ -1,2 +1,2 @@
 # hello-world
-First repository
+3d modelling is cool, special Eric eating banana.
